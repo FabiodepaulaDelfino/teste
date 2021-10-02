@@ -7,4 +7,4 @@
 https://www.youtube.com/watch?v=RgQbWD3jTOo
 
 #EXTINF:-1 tvg-id="" tvg-name="LISTA EXCLUSIVA PARA INSCRITOS PROIBIDO A VENDA ME AVISEM ZAP 24999421597 SE INSCREVAM " tvg-logo="https://yt3.ggpht.com/XOP647Q0WN0JLpehD9CVDhIzhH1d9RnTblWmHn_sIH3gCv0R6hiWl1Cr6YyGlN_oAWqzNsBa=s600-c-k-c0x00ffffff-no-rj-rp-mo"group-title="TUTORIAISDOFABIO",LISTA GRATUITA PARA INSCRITOS DO CANAL 
-https://www.youtube.com/watch?v=YLyF8pyzKWY
+https://www.youtube.com/watch?v=aULX6XyFuGs&list=PLj_xQVY_zNhMjInwUQINqfdUjqR9j08ok
